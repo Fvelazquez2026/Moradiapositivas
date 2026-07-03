@@ -1,2 +1,1 @@
-# Moradiapositivas
-Diapositivas de Publicidad
+
